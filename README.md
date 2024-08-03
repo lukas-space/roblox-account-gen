@@ -1,1 +1,1 @@
-its dead
+fixed it works 50/50
